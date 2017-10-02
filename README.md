@@ -9,5 +9,7 @@ To tell the people who is suffering in the life of endless due and deadline, hey
 
 # What are the slogans?
 Where is a due, there are us.
+
 The due be with you.
+
 I due, therefore, I am.
